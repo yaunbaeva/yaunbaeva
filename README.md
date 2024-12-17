@@ -26,5 +26,3 @@
 
 - 📧 **Email:** [yaunbaevaqa@gmail.com](mailto:yaunbaevaqa@gmail.com)
 - 🔗 **HH.ru** [Resume](https://spb.hh.ru/resume/46f7ff3cff0e00dd9a0039ed1f5a5669334c58)
--
-Спасибо за визит и поддержку! 😊
